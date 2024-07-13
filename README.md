@@ -1,1 +1,1 @@
-# Certificate_DialogPRO
+<h2><strong>Мои сертификаты Диалог ПРО</strong></h2>
